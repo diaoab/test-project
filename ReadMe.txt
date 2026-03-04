@@ -7,3 +7,5 @@ Sidi va a l ecole
  life is good man 
  Sidi back to school 
  Medor is her dog'nalme 
+
+ when are new trainee, you are at the bottom of escalator 
